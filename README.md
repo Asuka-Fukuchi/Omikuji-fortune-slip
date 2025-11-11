@@ -1,0 +1,1 @@
+# Omikuji-fortune-slip
